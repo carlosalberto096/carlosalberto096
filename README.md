@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @carlosalberto096
-- 👀 Estou interessado em ...atender 
+- 👀 Estou interessado em ...atender
 - 🌱 Atualmente estou aprendendo...muita coisas novas
 - 💞️ Estou procurando colaborar em ...muita coisas 
 - 📫 Como chegar até mim... cc3015626 @gmail.com
